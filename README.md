@@ -214,4 +214,4 @@ Sportowa TV is a complete free version with all features and updates included. E
 Get started with Sportowa TV today and never miss another sports moment! Download now and enjoy the ultimate sports experience on Kodi.
 
 ---
-**Last updated:** 2026-09-25 07:31:08 UTC
+**Last updated:** 2026-09-25 13:32:26 UTC
